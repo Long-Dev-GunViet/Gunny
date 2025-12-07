@@ -1,2 +1,2 @@
 # Gunny
-Cố lên!
+Gakyuc.net, Gunviet.net
